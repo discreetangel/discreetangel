@@ -6,10 +6,7 @@
 ‎ 
 ![3](https://files.catbox.moe/98te5k.png)
 ‎ 
-‎ 
-‎ 
-<p align="center"> spam , block if unwanted
-‎ 
+‎ ![3](https://files.catbox.moe/yr7kry.png)
 
-![3](https://files.catbox.moe/zc4h0l.png)
-‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ![3](https://files.catbox.moe/86341n.gif)
+‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ 
+<p align="center"> spam , block if unwanted
